@@ -1,1 +1,1 @@
-# contributor-home
+Click on the "Wiki" tab
